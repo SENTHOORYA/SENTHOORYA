@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SENTHOORYA
+- 👋 Hi, I’m @SENTHOORIYA
 - 🌱 I’m currently learning Electrical and Electronics e]Engineering
 - 📫 How to reach me senthooriya31@gmail.com
 
